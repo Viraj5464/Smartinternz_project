@@ -1,1 +1,0 @@
-# Smartinternz_project
